@@ -1,3 +1,5 @@
+<img width="806" height="438" alt="image" src="https://github.com/user-attachments/assets/82e62941-e949-45ed-a90e-ce4f67d90d08" />
+
 # Inspiration
 Exercising is one of the many elements to a balanced and healthy lifestyle, especially in our profession as some of us tend to slack in it. We want XRSZE to make you get off your butt and do things!
 
